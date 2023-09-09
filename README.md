@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @Lucox-Beta
 - 👀 I’m interested in helping you on WhatsApp 
 - 🌱 I’m currently learning how I can support you on WhatsApp 
-- 💞️ I’m looking to collaborate with anyone
+- 💞️ I’m looking to collaborate with nobody
 - 📫 How to reach me wa.me/+4917771085537
 
 <!---
